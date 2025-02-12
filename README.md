@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ganesh2005-479
+- 👋 Hi, I’m @Ganesh
 - 👀 I’m interested in Web developer 
 - 🌱 I’m currently learning web designing 
 - 💞️ I’m looking to collaborate on 2025
